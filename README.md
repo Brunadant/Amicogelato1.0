@@ -1,1 +1,2 @@
 # Amicogelato1.0
+Com a paixão italiana pela hospitalidade e a calorosa alma brasileira, o AmicoGelato é seu guia para brilhar no atendimento ao cliente. Ele te ensina, com carinho e bom humor, os segredos para acolher, explicar nossos deliciosos sabores e encantar cada visitante da nossa sorveteria. Prepare-se para incorporar a verdadeira cultura Santa Clara, onde a simpatia encontra a tradição italiana em cada sorriso e cada interação! 😉
